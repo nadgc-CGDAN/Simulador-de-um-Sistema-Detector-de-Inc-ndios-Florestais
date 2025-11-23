@@ -1,0 +1,1 @@
+# Simulador-de-um-Sistema-Detector-de-Inc-ndios-Florestais
